@@ -1,0 +1,1 @@
+System for smaller companies, helping to manage and rent dresses, suits and accessories for wedding and parties.
